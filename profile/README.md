@@ -1,4 +1,4 @@
-# Aqarat Libya | عقارات ليبيا
+# Aqarat Libya - عقارات ليبيا
 
 Aqarat Libya is a licensed Libyan real estate marketing and PropTech company.
 
