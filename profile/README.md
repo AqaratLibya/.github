@@ -2,7 +2,7 @@
 
 Aqarat Libya is a licensed Libyan real estate marketing and PropTech company.
 
-We work on digital real estate tools, 360/VR property viewing experiences, market insights, and trusted real estate presentation solutions.
+We work on digital real estate tools, 360/VR real estate viewing experiences, market insights, and trusted real estate presentation solutions.
 
 ## Official Links
 
